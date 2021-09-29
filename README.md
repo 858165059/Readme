@@ -1,1 +1,1 @@
-#### Stay humble, stay foolish.
+# Stay humble, stay foolish.
