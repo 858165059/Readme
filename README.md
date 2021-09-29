@@ -1,1 +1,0 @@
-# Stay humble, stay foolish.
